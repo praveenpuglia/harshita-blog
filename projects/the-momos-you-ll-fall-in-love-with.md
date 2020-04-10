@@ -1,6 +1,6 @@
 ---
 date: 2020-04-10
-thumbnail: ''
+thumbnail: "/uploads/IMG_20200409_143140.jpg"
 title: The Momos You'll Fall In Love With
 categories:
 - momo
