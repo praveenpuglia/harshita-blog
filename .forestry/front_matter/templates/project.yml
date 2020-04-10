@@ -35,3 +35,5 @@ fields:
   config:
     color_format: Hex
   label: Foreground color
+pages:
+- projects/the-momos-you-ll-fall-in-love-with.md
