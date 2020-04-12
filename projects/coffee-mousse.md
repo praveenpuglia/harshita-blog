@@ -57,10 +57,18 @@ Crushed 200 grams of Oreo cookies.
  9. Garnish with the crushed cookies.
 10. Set in refrigerator for 10 minutes.
 
-\# Tips and Tricks
+This is how it came out! Isn't that neat?![](/uploads/IMG-20200313-WA0048.jpg)
 
-1\.Personalize your mousse by adding more fruits.  
-2\.Don't over mix the cream or it will form grainy texture.  
-3\.Using good quality of whipped cream can set out a good consistency.  
-4\.You can top up this mousse with some vanilla flavored ice cream.  
-Should be served chilled.
+![](/uploads/IMG-20200313-WA0053.jpg)![](/uploads/IMG_20200313_230746_411.jpg)
+
+## Make It Even More Delicious
+
+1. Personalize your mousse by adding more fruits.
+2. Don't over mix the cream or it will form grainy texture.
+3. Using good quality whipped cream can fetch good consistency.
+4. You can top up this mousse with some vanilla flavored ice cream. 
+5. Serve it chilled 🥶
+
+Hope you have fun making it. If you do make some, don't forge to tag me in your instagram posts. Mention me with [curious__foodie](https://instagram.com/curious__foodie "Curious Foodie").
+
+See you on the next one; till then, Happy Cooking :)
