@@ -59,7 +59,9 @@ Crushed 200 grams of Oreo cookies.
 
 This is how it came out! Isn't that neat?![](/uploads/IMG-20200313-WA0048.jpg)
 
-![](/uploads/IMG-20200313-WA0053.jpg)![](/uploads/IMG_20200313_230746_411.jpg)
+![](/uploads/IMG-20200313-WA0053.jpg)
+
+![](/uploads/IMG_20200313_230746_411.jpg)
 
 ## Make It Even More Delicious
 
