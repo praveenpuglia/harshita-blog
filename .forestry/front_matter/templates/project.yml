@@ -36,4 +36,5 @@ fields:
     color_format: Hex
   label: Foreground color
 pages:
+- projects/coffee-mousse.md
 - projects/the-momos-you-ll-fall-in-love-with.md
