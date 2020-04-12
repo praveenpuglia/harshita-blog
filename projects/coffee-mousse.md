@@ -32,7 +32,7 @@ The recipe for this, that I had learned in my class, is a plain coffee mousse wi
 
 ### For the crust
 
-Crushed 200 grams of oreo cookies.
+Crushed 200 grams of Oreo cookies.
 
 ### For the Mousse
 
@@ -44,29 +44,18 @@ Crushed 200 grams of oreo cookies.
 * 2 tablespoons of powdered sugar
 * ½ cup Pomegranate seeds
 
-\# Procedure
+## Procedure
 
-1\. In a bowl, mix the coffee powder with hot water.
-
-2\. Mix the solution well and keep aside.
-
-3\. In another bowl take the whipped cream and then add the coffee solution and the powdered sugar.
-
-4\. Fold it gently until it becomes soft and smooth.
-
-5\. Transfer the mixture into the freezer for 15 minutes and let it rest.
-
-6\. Now divide the oreo cookies mixture equally in 6 mousse cups and level by pressing.
-
-7\. Now pipe the mousse over the crust.
-
-8\. Pipe the strawberry squash, pineapple squash and add pomegranate seeds
-
-9\. Now pipe the cream again to cover up.
-
-10\. Garnish with the crushed cookies.
-
-11\. Set in refrigerator for 10 minutes.
+ 1. In a bowl, mix the coffee powder with hot water. Mix the solution well and keep aside.
+ 2. In another bowl take the whipped cream and then add the coffee solution and the powdered sugar.
+ 3. Fold it gently until it becomes soft and smooth.
+ 4. Transfer the mixture into the freezer for 15 minutes and let it rest.
+ 5. Now divide the oreo cookies mixture equally in 6 mousse cups and level by pressing.
+ 6. Now pipe the mousse over the crust.
+ 7. Pipe the strawberry squash, pineapple squash and add pomegranate seeds.
+ 8. Now pipe the cream again to cover up.
+ 9. Garnish with the crushed cookies.
+10. Set in refrigerator for 10 minutes.
 
 \# Tips and Tricks
 
