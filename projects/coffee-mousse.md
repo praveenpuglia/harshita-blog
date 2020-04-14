@@ -68,9 +68,9 @@ This is how it came out! Isn't that neat?![](/uploads/IMG-20200313-WA0048.jpg)
 1. Personalize your mousse by adding more fruits.
 2. Don't over mix the cream or it will form grainy texture.
 3. Using good quality whipped cream can fetch good consistency.
-4. You can top up this mousse with some vanilla flavored ice cream. 
+4. You can top up this mousse with some vanilla flavored ice cream.
 5. Serve it chilled 🥶
 
-Hope you have fun making it. If you do make some, don't forge to tag me in your instagram posts. Mention me with [curious__foodie](https://instagram.com/curious__foodie "Curious Foodie").
+Hope you have fun making it. If you do make some, don't forget to tag me in your instagram posts. Mention me with [curious__foodie](https://instagram.com/curious__foodie "Curious Foodie").
 
 See you on the next one; till then, Happy Cooking :)
