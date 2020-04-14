@@ -1,6 +1,6 @@
 ---
 date: 2020-04-14
-thumbnail: ''
+thumbnail: "/uploads/IMG_20200413_163548 (1).jpg"
 title: Irani Chai - The legacy of Hyderabad.
 categories:
 - "#irani"
@@ -10,11 +10,11 @@ categories:
 - Recipe
 - Curious Foodie
 - Food
-project_bg_color: ''
+project_bg_color: "#FFFFFF"
 project_fg_color: ''
 
 ---
-No one wants to compromise with the taste of the tea. So today i giving out my own twist to Hyderabad's famous tea, the Irani Chai.
+![](/uploads/IMG_20200413_163515.jpg)No one wants to compromise with the taste of the tea. So today i giving out my own twist to Hyderabad's famous tea, the Irani Chai.
 
 Irani Chai is an individual from the regular tea. It is prepared in in its own **Dum (steam)**. Its has its own flavour and taste. It is prepared with decoction and simmered in low flames.
 
@@ -66,9 +66,15 @@ Few strands saffron
 * Stir well and cook the milk for 10 minutes over medium heat.
 * Bring the milk to a boil. The consistency of milk should be creamy and thick.
 * Remove from the flame and keep aside.
-* Unlid the pot, be careful with the steam
+* Uncover the pot, be careful with the steam
 * Strain the tea, pour the tea about 1/4th of the tea cup and add the milk to it.
 * Serve the hot tea with some cookies, cakes and savoury.
+
+The results!
+
+![](/uploads/IMG_20200413_163515-1.jpg)
+
+ ![](/uploads/IMG_20200413_163548.jpg)
 
 ## Points to remember
 
