@@ -54,7 +54,7 @@ Few strands saffron
 
 30 grams khoya or dry milk
 
-1 tbsp custard powder **(twist)** 
+1 tbsp custard powder **(twist)**
 
 # Procedure
 
@@ -63,11 +63,20 @@ Few strands saffron
 * Allow it to simmered at low flame for 30 mins for the proper Decoction.
 * Meanwhile, take a saucepan add milk followed by the sugar or jaggery.
 * Add the green cardamom, saffron, khoya or dry milk and custard powder.
-* Stir well and cook the milk for 10 minutes over medium heat. 
+* Stir well and cook the milk for 10 minutes over medium heat.
 * Bring the milk to a boil. The consistency of milk should be creamy and thick.
 * Remove from the flame and keep aside.
 * Unlid the pot, be careful with the steam
-
-
 * Strain the tea, pour the tea about 1/4th of the tea cup and add the milk to it.
-* Serve the hot tea with some cookies, cakes and savoury
+* Serve the hot tea with some cookies, cakes and savoury.
+
+## Points to remember
+
+* You can use a mix of small and long tea leaves for a more fragrant and rich tea.
+* You can use jaggery instead of sugar. Just adjust it as per taste.
+* Use Full fat milk, for a thicker and creamier milk.
+* You can use condensed milk or replace it with mava for much richer milk
+
+Hope you have fun making it. If you do make some, don't forge to tag me in your instagram posts. Mention me with [curious__foodie](https://instagram.com/curious__foodie "Curious Foodie").
+
+See you on the next one; till then, Happy Cooking :)
